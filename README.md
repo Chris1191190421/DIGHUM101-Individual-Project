@@ -2,3 +2,5 @@
 **Instructor: Dr. Tom van Nuenen**  
 **Student: Tianle Yang**  
 **Time: Summer 2022**  
+
+In recent years, feminism films represented by super heroines have become more and more popular. This personal project studied the impact of feminism films on audience discussion, and compared the impact of traditional feminism films with super heroin films.
